@@ -4,4 +4,4 @@
 
 ピンポン玉をみかんに見立てた。前半は家からみかんが転がって段ボールに入っていくのを表した。また、後半はトラックのドアが開いたまま発車して、段ボールが転げ落ちてしまい、みかんが転がるところを表した。
 
-<img width="500" src="[画像のURL](https://github.com/user-attachments/assets/3a199df4-9cec-4599-b55a-678f551f706a)">
+<img width="800" src="https://github.com/user-attachments/assets/d777932d-4bca-4759-a0ae-b4af4564aab9">
